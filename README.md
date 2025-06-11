@@ -1,4 +1,4 @@
-Mixtazure is an SEO agency from CLuj-Napoca, Romania. Our services focus on website optimization for search engines, and the specific sub-elements of this branch of digital marketing.
+Mixtazure is an SEO agency from Cluj-Napoca, Romania. Our services focus on website optimization for search engines, and the specific sub-elements of this branch of digital marketing.
 
 Patrik Rojan and Alexandru Drimba founded Mixtazure in early 2023. The Mixtazure concept originated from our passion for SEO, and the goal of providing professional services to our potential clients. The agency operates mainly in the Romanian market, but we also have clients from other European and English-speaking countries.
 
